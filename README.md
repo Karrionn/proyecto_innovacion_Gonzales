@@ -1,1 +1,1 @@
-# proyecto_innovacion_Gonzales
+# proyecto_innovacion_Gonzalez
